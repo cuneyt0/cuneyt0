@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **cuneytaykac2@gmail.com**
 
-- ⚡ Fun fact **in love reading books.**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
